@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ifeoluwa Adebowale 
-- 👀 I’m interested in 
+- 👀 I’m interested in  Constantly refining my skills in product lifecycle management, agile methodologies, and user-centric design.
 - 🌱 I’m currently learning Product Management 
 - 💞️ I’m looking to collaborate on SaaS or eCommerce projects.
 Digital product development.
